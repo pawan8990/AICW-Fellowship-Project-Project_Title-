@@ -1,1 +1,1 @@
-# AICW-Fellowship-Project-Project_Title-
+# AICW-Fellowship-Project
